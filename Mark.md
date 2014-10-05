@@ -4,25 +4,26 @@
 
 The good news about Jesus the Messiah begins with the fulfillment of Isaiah's prophesy:
 
-> ‘I am sending my messenger ahead of you;
+> ‘I'm sending my messenger ahead of you;
 > he will prepare your way.
-> The voice of one crying out in the wilderness:
-> “Prepare the road for the Lord,
+> He will cry out in the wilderness:
+> “Prepare the way for the Lord,
 > make a straight path for him.”’
 
-John the Baptist came in the wilderness, proclaiming a baptism on repentance, for the forgiveness of sins.
-The whole of Judea, as well as all the inhabitants of Jerusalem, went out to him; and they were baptized by him in the Jordan River, confessing their sins.
+John the Baptist came in the wilderness, proclaiming a baptism of repentance for the forgiveness of sins.
+The whole of Judea, as well as everyone who lived in Jerusalem, went out to him; they confessed their sins and were baptized by him in the Jordan River.
 
-John wore clothes made of camels' hair, with a leather strap around his waist, and lived on locusts and wild honey;
-and he proclaimed — “After me is coming someone more powerful than I am, and I am not fit even to stoop down and unfasten his sandals.
-I have baptized you with water, but he will baptize you with the Holy Spirit.”
+John wore the clothes of a prophet: camels' hair, with a leather strap around his waist. He lived on locusts and wild honey.
 
-Now about that time Jesus came from Nazareth in Galilee, and was baptized by John in the Jordan.
-Just as he was coming up out of the water, he saw the heavens split open and the Spirit coming down to him like a dove,
-and from the heavens came a voice — “You are my dearly loved son; you bring me great joy.”
+John said, “Someone more powerful than I am is coming after me, someone so great that I am not even worthy to kneel down and untie his shoes for Him.
+I baptized you with water; he will baptize you with the Holy Spirit.”
+
+At that time Jesus came from Nazareth in Galilee and was baptized by John in the Jordan river.
+Just as Jesus was coming up out of the water, He saw the skies torn open and the Spirit coming down to Him like a dove,
+and from the sky came a voice: “You are my dearly loved Son; You bring me great joy.”
 
 Immediately afterward the Spirit drove Jesus out into the wilderness;
-and he was there in the wilderness forty days, tempted by Satan, and among the wild beasts, while the angels helped him.
+and He was in the wilderness for forty days, tempted by Satan, and among the wild animals, while the angels helped him.
 
 
 ### Chapter 1: A Day in Capernaum
