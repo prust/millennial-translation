@@ -2,7 +2,7 @@
 
 ### Prologue
 
-The good news about Jesus the Messiah begins with the fulfillment of Isaiah's prophesy:
+The good news about Jesus the Messiah began with the fulfillment of Isaiah's prophesy:
 
 > ‘I'm sending my messenger ahead of you;
 > he will prepare your way.
@@ -11,19 +11,18 @@ The good news about Jesus the Messiah begins with the fulfillment of Isaiah's pr
 > make a straight path for him.”’
 
 John the Baptist came in the wilderness, proclaiming a baptism of repentance for the forgiveness of sins.
-The whole of Judea, as well as everyone who lived in Jerusalem, went out to him; they confessed their sins and were baptized by him in the Jordan River.
+The whole of Judea, as well as everyone who lived in Jerusalem, went out to him. They confessed their sins and were baptized by him in the Jordan River.
 
 John wore the clothes of a prophet: camels' hair, with a leather strap around his waist. He lived on locusts and wild honey.
 
-John said, “Someone more powerful than I am is coming after me, someone so great that I am not even worthy to kneel down and untie his shoes for Him.
+“Someone even more powerful is coming," John said. "Someone so great that I'm not worthy to kneel down and untie his shoes.
 I baptized you with water; he will baptize you with the Holy Spirit.”
 
 At that time Jesus came from Nazareth in Galilee and was baptized by John in the Jordan river.
-Just as Jesus was coming up out of the water, He saw the skies torn open and the Spirit coming down to Him like a dove,
-and from the sky came a voice: “You are my dearly loved Son; You bring me great joy.”
+Just as Jesus was coming up out of the water, He saw the skies ripped open and the Spirit coming down to Him like a dove. From the sky came a voice: “You are my dearly loved Son; You bring me great joy.”
 
-Immediately afterward the Spirit drove Jesus out into the wilderness;
-and He was in the wilderness for forty days, tempted by Satan, and among the wild animals, while the angels helped him.
+Immediately, the Spirit drove Jesus out into the wilderness;
+and He was in the wilderness for forty days being tempted by Satan. He was among wild animals, but angels helped him.
 
 
 ### Chapter 1: A Day in Capernaum
