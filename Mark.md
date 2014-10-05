@@ -1,16 +1,16 @@
-### The good news about Jesus the Messiah the Son of God
+## The good news about Jesus the Messiah the Son of God
 
-The beginning of the good news about Jesus Christ.
+### Prologue
 
-It is said in the prophet Isaiah —
-    ‘I am sending my messenger ahead of you;
-    he will prepare your way.
+The good news about Jesus the Messiah begins with the fulfillment of Isaiah's prophesy:
 
-The voice of one crying aloud in the wilderness:
-    “Prepare the road for the Lord,
-    make a straight path for him.”’
+> ‘I am sending my messenger ahead of you;
+> he will prepare your way.
+> The voice of one crying out in the wilderness:
+> “Prepare the road for the Lord,
+> make a straight path for him.”’
 
-John the Baptizer appeared in the wilderness, proclaiming a baptism on repentance, for the forgiveness of sins.
+John the Baptist came in the wilderness, proclaiming a baptism on repentance, for the forgiveness of sins.
 The whole of Judea, as well as all the inhabitants of Jerusalem, went out to him; and they were baptized by him in the Jordan River, confessing their sins.
 
 John wore clothes made of camels' hair, with a leather strap around his waist, and lived on locusts and wild honey;
@@ -23,6 +23,9 @@ and from the heavens came a voice — “You are my dearly loved son; you bring 
 
 Immediately afterward the Spirit drove Jesus out into the wilderness;
 and he was there in the wilderness forty days, tempted by Satan, and among the wild beasts, while the angels helped him.
+
+
+### Chapter 1: A Day in Capernaum
 
 After John had been arrested, Jesus went to Galilee, proclaiming the good news of God —
 “The time has come, and the kingdom of God is at hand; repent, and believe the good news.”
