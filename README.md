@@ -1,3 +1,7 @@
+# Millennial Translation
+
+This is a translation of the gospel of Mark, based on the open-source Open English Bible. More details on that below.
+
 Open English Bible
 ==================
 
